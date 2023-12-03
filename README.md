@@ -9,3 +9,5 @@ im 14 y/o ;-;
 interact whenever u want idc i love interacting mwah mwah kisses and hugs xoxo love u lawwkwkwwlwkjdsj
 
 dni FREAKSSS
+
+i GENUINELY dont care about spelling mistakes so yeah um dnt mind the amount of spelling mistakes i make lawl !
